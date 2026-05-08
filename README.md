@@ -1,1 +1,1 @@
-Navigating the shifting tides of technology.
+Technology keeps evolving.
